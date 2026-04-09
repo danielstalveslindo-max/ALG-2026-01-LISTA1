@@ -1,4 +1,4 @@
-# Exercicios aura + ego
+# Exercicios aura + ego.
 Top exercicios definitivamente mais feitos em aula e fora de aula
 ░░░░░░░░▄██▄░░░░░░▄▄░░
 ░░░░░░░▐███▀░░░░░▄███▌
